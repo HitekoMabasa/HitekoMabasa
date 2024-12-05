@@ -21,7 +21,7 @@
 - I’d love to share insights on **HTML, CSS, JavaScript**, and explore ideas together.
 
 ### 📫 **Get in Touch**
-- Feel free to reach out at **Hitwkofait@gmail.com**.
+- Feel free to reach out at **Hitekofait@gmail.com**.
 
 ### ⚡ **Fun Fact**
 - When I’m not coding, you’ll find me **singing melodies** 🎶.
